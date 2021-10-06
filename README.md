@@ -1,2 +1,4 @@
 # hello-world1
-this is a retry cuz i screwed up
+
+
+hey so my name is joey kutz and i play ice hockey with paul. hes my captain hahahahahahahahahahahahahaha
